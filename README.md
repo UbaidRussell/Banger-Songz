@@ -6,3 +6,4 @@
 4. Lights (Remix) by YES YES [Click Here](https://open.spotify.com/track/4QaFauPEGz7bqmwRRfuIZb?si=5e6b9afacfcd46af)
 5. Ride (Remix) by Mert can [Click Here](https://open.spotify.com/track/64fIhibcQamlvKa6SLMot2?si=52bdec5a15254d9b)
 6. Save your Tears (Remix) by NEAMARTI [Click Here](https://open.spotify.com/track/3IsZleSHforGhdjlRbUr2z?si=d7fbab829a18484c)
+7. Mad world (Remix) by DJSM [Click Here](https://open.spotify.com/track/3zabZKc5pXCWYQmviG9eJh?si=56b03e1066784a18)
