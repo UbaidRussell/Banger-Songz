@@ -11,3 +11,4 @@
 9. I feel better by OVERWERK ft Nick Nikon [Click Here](https://open.spotify.com/track/7gP3k4cc19HvpQVug2VC62?si=16e092f158d942d7)
 10. Daggers By Robot Science [Click Here](https://open.spotify.com/track/6js1TMeoPmuo72BgZZlw3E?si=f36695934fc7429c)
 11. Extraordinary by Roland Michael [Click Here](https://open.spotify.com/track/3ZFKzPqp4BPAn9nGU7Ym2j?si=c7a0c6b9fe3a48c5)
+12. Degi Favorite by Burg Heure [Click Here](https://open.spotify.com/track/4dO2MRMaxTPdg3xaB01mib?si=3ab4089fd0974e45)
