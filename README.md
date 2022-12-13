@@ -19,3 +19,4 @@
 17. Khlever by Lower Spectrum [Click Here](https://open.spotify.com/track/0d1Kczse0OWHEabuRpZKZz?si=e07dcbb242ae4cd6)
 18. Uncloak by Koan [Click Here](https://open.spotify.com/track/7KvwplqWhMP3XRmLa5rHm4?si=d077b77d0fd34f03)
 19. Eclipse/Blue by Nosaj Thing and KAZU [Click Here](https://open.spotify.com/track/1OO6bLZ79F3tOGkHPD0t2i?si=aa07c4257fc44446)
+20. Help me lose my mind - Disclosure SOHN remix [Click Here](https://open.spotify.com/track/0mqltSIfJ1O32l89gsk6YY?si=f663e1f7d9e3493b)
