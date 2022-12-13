@@ -23,3 +23,5 @@
 21. Magnets by Disclosure x Lorde [Click Here](https://open.spotify.com/track/7nRmfGNhHKEEu5o8yFXLXt?si=11356bae34fe4e55)
 22. Luv Letter by DJ Okawari [Click Here](https://open.spotify.com/track/60mjatPf9M1fXkBmei0ATb?si=1694fbb504854a64)
 23. Edge by Cicada [Click Here](https://open.spotify.com/track/3yGXP5U92JP1VSC2Rlc7Em?si=54db914b33454b80)
+24. Singapore by Reid [Click Here](https://open.spotify.com/track/2sRJe2vTfnBYyHXmrqFRtm?si=18e54344016544b3)
+25. Banned from living [Click Here](https://open.spotify.com/track/3P4SOWJr8k0iMULpLnXlGz?si=0599fbb4ad4441d5)
