@@ -21,3 +21,4 @@
 19. Eclipse/Blue by Nosaj Thing and KAZU [Click Here](https://open.spotify.com/track/1OO6bLZ79F3tOGkHPD0t2i?si=aa07c4257fc44446)
 20. Help me lose my mind - Disclosure SOHN remix [Click Here](https://open.spotify.com/track/0mqltSIfJ1O32l89gsk6YY?si=f663e1f7d9e3493b)
 21. Magnets by Disclosure x Lorde [Click Here](https://open.spotify.com/track/7nRmfGNhHKEEu5o8yFXLXt?si=11356bae34fe4e55)
+22. Luv Letter by DJ Okawari [Click Here](https://open.spotify.com/track/60mjatPf9M1fXkBmei0ATb?si=1694fbb504854a64)
