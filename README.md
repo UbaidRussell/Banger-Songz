@@ -18,3 +18,4 @@
 16. Fears by MTNS [Click Here](https://open.spotify.com/track/1BsH94NLjVe7cHJ8t5oWSP?si=ab677e49c0d44075)
 17. Khlever by Lower Spectrum [Click Here](https://open.spotify.com/track/0d1Kczse0OWHEabuRpZKZz?si=e07dcbb242ae4cd6)
 18. Uncloak by Koan [Click Here](https://open.spotify.com/track/7KvwplqWhMP3XRmLa5rHm4?si=d077b77d0fd34f03)
+19. Eclipse/Blue by Nosaj Thing and KAZU [Click Here](https://open.spotify.com/track/1OO6bLZ79F3tOGkHPD0t2i?si=aa07c4257fc44446)
