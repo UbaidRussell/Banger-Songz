@@ -28,3 +28,4 @@
 26. Hurricane - Arty remix by Halsey [Click Here](https://open.spotify.com/track/65n4DkUhKUO4tECIabKwy1?si=6072d79a1bd3462e)
 27. Imagine Reality by Uppermost [Click Here](https://open.spotify.com/track/365Xrh0GANWYx7nBtOoQgO?si=2fbcd6550ac445cd)
 28. Yard Two Stone by Lane 8 [Click Here](https://open.spotify.com/track/0BfGv5zUxozXC5N6goFhNV?si=000b4c2446474039)
+29. 365 by Zedd and Katy Perry[Click Here](https://open.spotify.com/track/2XWjPtKdi5sucFYtVav07d?si=116fb1ac9af44de8)
