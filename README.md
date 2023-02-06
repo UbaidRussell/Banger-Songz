@@ -34,3 +34,4 @@
 32. Ah Up by Sound Quelle [Click Here](https://open.spotify.com/track/0pbZX9CK1W2iIiUFJf39wr?si=c0ee5fa20feb40b5)
 33. Neptune by EDX [Click Here](https://open.spotify.com/track/4Gu4dC05SyYDOhqOpK1jbL?si=ddab7da4540c41e4)
 34. Future Vision by Waveshaper [Click Here](https://open.spotify.com/track/1VcC7vzqPZHTWT9qd745zw?si=7dcb0ea7aab14f4c)
+35. El Apagón by Bad Bunny [Click Here](https://open.spotify.com/track/0UvZcEfpzVyx47QsRbjyBz?si=50895a808ae3451a)
