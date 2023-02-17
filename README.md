@@ -36,3 +36,4 @@
 34. Future Vision by Waveshaper [Click Here](https://open.spotify.com/track/1VcC7vzqPZHTWT9qd745zw?si=7dcb0ea7aab14f4c)
 35. El Apagón by Bad Bunny [Click Here](https://open.spotify.com/track/0UvZcEfpzVyx47QsRbjyBz?si=50895a808ae3451a)
 36. Angels by Uppermost [Click Here](https://open.spotify.com/track/46um1muv44UXwiKicHBllk?si=f41a1e749c7e4703)
+37. U by Avoure [Click Here](https://open.spotify.com/track/13Xh2UHkp9zm22FtDU9wXi?si=2635f1e1de8641aa)
