@@ -38,3 +38,4 @@
 36. Angels by Uppermost [Click Here](https://open.spotify.com/track/46um1muv44UXwiKicHBllk?si=f41a1e749c7e4703)
 37. U by Avoure [Click Here](https://open.spotify.com/track/13Xh2UHkp9zm22FtDU9wXi?si=2635f1e1de8641aa)
 38. Abyss by Klaypex [Click Here](https://open.spotify.com/track/16ya3VKqYZyG5hjG7EV0Q1?si=14bfdac28c344d01)
+39. Lies by Marina and The Diamonds Zeds Dead Remix [Click Here](https://www.youtube.com/watch?v=KTYD_kN7rPg&list=RDGMEMWO-g6DgCWEqKlDtKbJA1Gw&start_radio=1&rv=SZ1OTOzX1TE)
