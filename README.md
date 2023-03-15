@@ -39,3 +39,4 @@
 37. U by Avoure [Click Here](https://open.spotify.com/track/13Xh2UHkp9zm22FtDU9wXi?si=2635f1e1de8641aa)
 38. Abyss by Klaypex [Click Here](https://open.spotify.com/track/16ya3VKqYZyG5hjG7EV0Q1?si=14bfdac28c344d01)
 39. Lies by Marina and The Diamonds Zeds Dead Remix [Click Here](https://www.youtube.com/watch?v=KTYD_kN7rPg&list=RDGMEMWO-g6DgCWEqKlDtKbJA1Gw&start_radio=1&rv=SZ1OTOzX1TE)
+40. Light Music for focus [Click Here](https://www.youtube.com/watch?v=NQKC24th90U)
